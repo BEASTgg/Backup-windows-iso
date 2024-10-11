@@ -2,7 +2,7 @@
 
 ### Windows                   Download Link
 
-#### 7       &ensp;                [Click Here]()
+#### 7       &ensp;&ensp;&ensp;&ensp;               [Click Here]()
 #### 8        \t\t\t\t\t
 #### 8.1      \t\t\t\t\t
 #### 10       \t\t\t\t\t               [Click Here](https://www.mediafire.com/file/lza2w6innc8i7d0/Windows+10+22h2+x64.iso/file)
