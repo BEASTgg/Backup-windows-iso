@@ -1,2 +1,1 @@
-# Backup-windows-iso
-Keeping windows iso as backup before microsoft being removed !
+### KEEPING WINDOWS ISO HERE BEFORE MICROSOFT REMOVES IT ..... TOTALLY SAFE ( PROBABLY FEELS LIKE A SCAM NOW ISNT IT LOL 😆 )
