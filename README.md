@@ -1,6 +1,6 @@
 ## KEEPING WINDOWS ISO HERE BEFORE MICROSOFT REMOVES IT ..... TOTALLY SAFE ( PROBABLY FEELS LIKE A SCAM NOW ISNT IT LOL 😆 )
 
-### Windows  ------------------------------------  Download Link
+### Windows  ----------------------------------  Download Link
 
 #### 7       ----------------------------------------------------------               [Click Here]()
 #### 8       ----------------------------------------------------------  
